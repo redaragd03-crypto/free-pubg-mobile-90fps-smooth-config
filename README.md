@@ -1,0 +1,1 @@
+# free-pubg-mobile-90fps-smooth-config
